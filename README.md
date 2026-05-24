@@ -1,0 +1,1 @@
+# ShadowBot-Parcerias-2.0
